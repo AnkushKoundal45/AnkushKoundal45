@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ankush88385@gmail.com**
 
-- 📄 Know about my experiences [https://shorturl.at/chjlC](https://shorturl.at/chjlC)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
